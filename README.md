@@ -1,0 +1,11 @@
+# Smart
+![Screenshot 2023-08-29 at 7 37 11 pm](https://github.com/TUFFI2033/Smart/assets/57073564/15e90785-1c18-4f6a-9f20-74e609c38282)
+![Screenshot 2023-08-29 at 7 37 23 pm](https://github.com/TUFFI2033/Smart/assets/57073564/fc1a2b82-d112-4c05-92d5-0c8f15a4b2fc)
+![Screenshot 2023-08-29 at 7 38 34 pm](https://github.com/TUFFI2033/Smart/assets/57073564/80f536a2-e112-4815-9083-57c9912da8c9)
+![Screenshot 2023-08-29 at 7 38 46 pm](https://github.com/TUFFI2033/Smart/assets/57073564/7ce05a0d-0af0-4308-ba18-a5fd455bd04a)
+![Screenshot 2023-08-29 at 7 38 59 pm](https://github.com/TUFFI2033/Smart/assets/57073564/5e06e72d-b421-4b92-b7d2-ec7d8bbe085f)
+![Screenshot 2023-08-29 at 7 47 54 pm](https://github.com/TUFFI2033/Smart/assets/57073564/43a97d1c-e355-403e-9636-a67b6c868b5c)
+![Screenshot 2023-08-29 at 7 39 23 pm](https://github.com/TUFFI2033/Smart/assets/57073564/641e4f84-551e-46a4-a24b-441b2818fac0)
+![Screenshot 2023-08-29 at 7 39 33 pm](https://github.com/TUFFI2033/Smart/assets/57073564/093f62b1-d2d3-4eca-86fa-f8beebe565db)
+![Screenshot 2023-08-29 at 7 39 44 pm](https://github.com/TUFFI2033/Smart/assets/57073564/e2900a8d-a077-4ccf-a8cb-99a5051c6340)
+![Screenshot 2023-08-29 at 7 39 50 pm](https://github.com/TUFFI2033/Smart/assets/57073564/24db9aa5-e4f6-4007-abef-dfd45ce64300)
