@@ -1,4 +1,4 @@
-# Smart
+# Smart site
 ![Screenshot 2023-08-29 at 7 37 11 pm](https://github.com/TUFFI2033/Smart/assets/57073564/15e90785-1c18-4f6a-9f20-74e609c38282)
 ![Screenshot 2023-08-29 at 7 37 23 pm](https://github.com/TUFFI2033/Smart/assets/57073564/fc1a2b82-d112-4c05-92d5-0c8f15a4b2fc)
 ![Screenshot 2023-08-29 at 7 38 34 pm](https://github.com/TUFFI2033/Smart/assets/57073564/80f536a2-e112-4815-9083-57c9912da8c9)
